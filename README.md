@@ -46,6 +46,6 @@ I’m passionate about building scalable web and mobile applications, solving re
 
 ### 🌼 Let's Connect!
 
-💌 **Email:** [souhaila@example.com](mailto:souhaila.karkoub@esprit.tn)
+💌 **Email:** [souhaila.karkoub@esprit.tn](mailto:souhaila.karkoub@esprit.tn)
 
 
